@@ -11,7 +11,7 @@
   
 二維碼↓↓
 
-[<img src="https://saops.xgcszyz.com/linlin/github/github%20JJKK.png">](https://saops.xgcszyz.com/linlin/github/github%20JJKK.png)
+[<img src="https://saops.haiyiliuhe.com/linlin/github/github%20JJKK.png">](https://saops.haiyiliuhe.com/linlin/github/github%20JJKK.png)
   
   
     

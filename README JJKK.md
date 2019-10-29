@@ -1,7 +1,7 @@
 # HEALTH² 最新地址
 ↓请选择最新地址↓
 
-[https://health2.cc](https://health2.cc/?utm_source=github&utm_medium=new&channelCode=githubnew)
+[https://health9.icu](https://health9.icu/?utm_source=github&utm_medium=new&channelCode=githubnew)
 ------------------------------------------------------------------------------
   
 ↓永久地址发布站↓
@@ -11,9 +11,10 @@
   
 二維碼↓↓
 
-[<img src="https://saops.haiyiliuhe.com/linlin/github/github%20JJKK.png">](https://saops.haiyiliuhe.com/linlin/github/github%20JJKK.png)
-  
-  
+[<img src="https://saops.zqhthzf.com/linlin/github/github-JJKK-1029.png
+">](https://saops.zqhthzf.com.com/linlin/github/github-JJKK-1029.png
+)
+    
     
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
 

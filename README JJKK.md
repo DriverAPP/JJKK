@@ -11,9 +11,7 @@
   
 二維碼↓↓
 
-[<img src="https://saops.zqhthzf.com/linlin/github/github-JJKK-1029.png
-">](https://saops.zqhthzf.com.com/linlin/github/github-JJKK-1029.png
-)
+[<img src="http://s04.calm9.com/qrcode/2019-10/N9FM0OS6E6.png">](http://s04.calm9.com/qrcode/2019-10/N9FM0OS6E6.png)
     
     
 国产浏览器(如 UC、360、QQ、百度) 不定期可能会屏蔽网站，建议使用谷歌浏览器观看 
